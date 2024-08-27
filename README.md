@@ -1,5 +1,5 @@
 Wesley Gabriel Rech
-046 999851786
+046 999857649
 wesley.rech@escola.pr.gov.br
 https://github.com/wesleyrechh
 
